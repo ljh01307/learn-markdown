@@ -192,4 +192,10 @@ ____
 
 &emsp;你若安好，便是晴天。    
 
-[if you think you are handsome,click here.](https://baike.baidu.com/item/%E8%87%AA%E6%81%8B%E5%9E%8B%E4%BA%BA%E6%A0%BC%E9%9A%9C%E7%A2%8D/1052308    "F**kYou" )😄
+评价一下自己的颜值   
+
+[A.英俊潇洒/倾国倾城](https://baike.baidu.com/item/%E8%87%AA%E6%81%8B%E5%9E%8B%E4%BA%BA%E6%A0%BC%E9%9A%9C%E7%A2%8D/1052308    "真不要脸" )😅    
+
+[B.丑的像屎](https://zhuanlan.zhihu.com/p/250137650    "6" )😞      
+
+
